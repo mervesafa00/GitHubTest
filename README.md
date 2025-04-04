@@ -1,1 +1,1 @@
-çok güzel bir repo oldu.
+çok güzel bir repo oldu.⭐
